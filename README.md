@@ -1,2 +1,0 @@
-# ruchitha
-hello buddy
